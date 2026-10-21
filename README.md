@@ -1,1 +1,2 @@
 "# ben10xchpet" 
+BÜTÜN SANAL BUNU KULLANIYO AQXD
